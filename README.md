@@ -9,7 +9,7 @@ Here are some ideas to get you started:
 - 💬 Ask me about main pop girlies
 - 📫 How to reach me: try finding me on Hinge
 - 😄 Pronouns: he/they
-- ⚡ Fun fact: I once watched two ladybugs doing *it* during P.E.
+- ⚡ Fun fact: I once watched two ladybugs doing *it* during P.E. 🤭
 
 <!--
 **beachball-boop/beachball-boop** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
